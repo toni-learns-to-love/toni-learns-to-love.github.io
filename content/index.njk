@@ -8,6 +8,14 @@ pagination:
 permalink: "{% if pagination.pageNumber > 0 %}/{{ pagination.pageNumber + 1 }}{% endif %}/index.html"
 ---
 
+<div class="site-hero">
+  <img src="{{ siteConfig.site.logo }}" alt="{{ siteConfig.site.title }}" class="site-hero__logo" />
+  <div class="site-hero__text">
+    <h1 class="site-hero__title">{{ siteConfig.site.title }}</h1>
+    <p class="site-hero__description">{{ siteConfig.site.description }}</p>
+  </div>
+</div>
+
 <div class="post-list">
   <ul>
   {% for post in posts %}
