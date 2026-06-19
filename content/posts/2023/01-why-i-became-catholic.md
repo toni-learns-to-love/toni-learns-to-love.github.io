@@ -23,30 +23,55 @@ When childhood wore off (a bit late for me, to be honest), I dropped my fantasie
 [**1.	I come to the garden alone** (Titles link to youtube)](https://www.youtube.com/watch?v=DgbkGQeLDXI&list=RDDgbkGQeLDXI&start_radio=1)
 
 I grew up Baptist, and I am grateful for it. The Baptists first taught me to seek after God’s own heart. Their simple doctrine points directly to God, and many seek Him and fall in love with Him.
+
 The Baptists I grew up with had deep and personal prayer lives. My friends in college talked of what they learned by meeting God in prayer, and some prayed daily to see the face of Jesus. Learning from them, I too would often walk through the University of Arizona on quiet Sunday afternoons, praying silently and asking God provocative questions. From memorable but rare experiences, I learned that experiencing the presence of God felt most like the silent and awesome terror of standing on the edge of the Grand Canyon. 
+
 But toward the end of my junior year of college, I began to doubt Christianity. God seemed real and present, and love and beauty certainly had to come from God. But I questioned whether the story Baptists told matched the testimony of the universe. The main problem was that Jesus made no sense to me. The part of Jesus that I loved, his life told in the gospels, seemed merely incidental to the main story, that “Jesus had to live a perfect life to be a perfect sacrifice, and the perfection of his life shows our need for God.” I thought Baptists’ explanation of the Gospels lent itself to a more grandiose incarnation and sacrifice, with trumpet blasts and angels. Instead, the way it all ‘had to happen’ seemed like a strange technical requirement in a rulebook created by a strange God. 
+
 In a lot of other ways, too, the words we used felt off from reality. We called the euphoric singing at camps ‘worship’ when I always thought that God I could more honestly praise God in the quiet. Calling out sin was ‘love’ even when the accusers seemed to hate the accused. I also realized I was (oopsies) more romantically attracted to women than men, which was not allowed by our strange God. I would accept God’s sovereignty if He was real, but I had to make sure.
-I found out my belief in God was better described as agnostic than Christian, which was inconvenient because I had been elected president of the Baptist club for the following year. I gave myself the deadline to figure out Jesus by the end of the summer. Because Baptists were faithful and saw something real in Jesus, I guessed that I was the problem. I never considered any other denomination because I was raised to believe that Baptists were the quintessential Christians.  
+
+I found out my belief in God was better described as agnostic than Christian, which was inconvenient because I had been elected president of the Baptist club for the following year. I gave myself the deadline to figure out Jesus by the end of the summer. Because Baptists were faithful and saw something real in Jesus, I guessed that I was the problem. I never considered any other denomination because I was raised to believe that Baptists were the quintessential Christians.
+
 I especially never considered Catholicism. I grew up believing the Catholic Church was not a Christian church. If there were any Christians there, it was by a miraculous act of God that covered the ears of the congregants to anything the priest said. But by a different act of God, I went to mass for the first time during my period of doubt.
+
 A resident of the dorm I worked in had a crisis at 7:00am one Sunday morning. Because I went to an 8:00am church service, I was the only resident assistant awake to handle the situation. The incident lasted through my church service and bible study and into the start of the later service. When the dorm incident was over, I was emotionally exhausted and decided to go on a long walk. But on my way out the back door of the dorm, I ran into my Catholic friend who invited me along to mass. I literally went because I thought it would be entertaining to hear some heresy.
-Instead, I again got more than I was looking for. Unlike my Baptist services, the mass took the focus off me and allowed me to really worship God. Catholics did some things well. They were weird, but they were definitely Christians. 
+
+Instead, I again got more than I was looking for. Unlike my Baptist services, the mass took the focus off me and allowed me to really worship God. Catholics did some things well. They were weird, but they were definitely Christians.
+
 I left my first mass liking the Catholic church.
-2.	Veiled in flesh the Godhead see 
+
+[2.	Veiled in flesh the Godhead see](https://www.youtube.com/watch?v=mfBAm-TnPks)
+
 I started my summer of figuring out Jesus with no plan. I had a research job at the library at University of Arizona that summer, and I claimed myself a desk amid the Christian classics. I thought I might as well start anywhere. I wandered through the stacks during my breaks, and I pulled the first book whose title caught my eye (because it was juicy): Confessions. This guy I had never heard of named Augustine wrote it. He intriguingly was writing about his conversion around 400AD. 
+
 I don’t think I could have had a more perfect first pull. Augustine went through the intellectual deduction I knew I had neither the time nor intelligence for. He also struggled with the same persistent longing that I did, and my journal was filled with his quotes:
-“I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” 
+
+    “I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” [Confessions, Book 3 chapter 1](https://www.logoslibrary.org/augustine/confessions/0301.html)
+
 Augustine became convinced that Jesus would fill that longing. Interestingly, he assented intellectually before choosing to follow Jesus. He knew that being Christian would cost him a lot. Baptists told me that, but they never seemed real.  My friend Augustine understood something that I didn’t. But I trusted Augustine him and decided to look for Jesus anew in the bible. 
+
 The faith of my senior year of college was fresh and exciting. I couldn’t wait for Christmas to ponder the incarnation. The gospels seemed brand new and radical. I was fascinated by other peoples’ faiths and swooned over an Orthodox boy who accidentally found himself at our Baptist Club and quietly confessed his affection for the Virgin Mary to me. 
+
 However, my year of wonder ended abruptly. Covid struck, churches paused services, and then radicalized. People disappeared in isolation. College ended without any goodbyes. I moved quietly to start a new chapter in a small town in upstate New York.
-3.	Why won’t you speak where I happen to be? 
+
+[3.	Why won’t you speak where I happen to be?](https://www.youtube.com/watch?v=Apq5VQTMreE&list=RDApq5VQTMreE&start_radio=1)
+
 My PhD opened the door to a radically new life – a new town, new scenery, new climate, new friends, and a new culture. I thought I might also try out a new denomination. I considered Catholicism for a moment, but I thought if going to Catholic mass made such a big impression, another (less weird) denomination might be even better.
+
 So obviously the less weird choice was a Pentecostal church. I attended their services for three months and took away the expectation that the Holy Spirit would do great things. However, I left after the pastor insisted I had a prophecy to share.
-I next checked out the second church on my arbitrary list of Ithaca churches, which was presbyterian. Despite its hosting church online and pre-recorded for covid, I fell in love immediately.  Not only were the church’s theology and teaching beautiful, but it had a liturgy like the Catholics. I didn’t know any protestants did that. 
-The church grew me in many important ways. It proclaimed the Jesus from the gospel, which grew my wonder in God. The church spoke on justice and brokenness in the world, teaching me how to intellectually apply my faith to topics I cared about, like the environment and abuse and the economy. 
-Yet, despite my increasing intellectual knowledge of God’s goodness, that goodness seemed to transcend impossibly away from me. In the better times of my PhD, like Lent in my second year, I begged without answer to be able to sense God’s presence in my life. In the worse times, I was indifferent to my diminishing ability and desire to spend time with God.  There are times of spiritual dryness brought on by God for our benefit, and there are times that we bring on ourselves. I wanted the benefit of communion with God without following Him to where He was. 
+
+I next checked out the second church on my arbitrary list of Ithaca churches, which was presbyterian. Despite its hosting church online and pre-recorded for covid, I fell in love immediately.  Not only were the church’s theology and teaching beautiful, but it had a liturgy like the Catholics. I didn’t know any protestants did that.
+
+The church grew me in many important ways. It proclaimed the Jesus from the gospel, which grew my wonder in God. The church spoke on justice and brokenness in the world, teaching me how to intellectually apply my faith to topics I cared about, like the environment and abuse and the economy.
+
+Yet, despite my increasing intellectual knowledge of God’s goodness, that goodness seemed to transcend impossibly away from me. In the better times of my PhD, like Lent in my second year, I begged without answer to be able to sense God’s presence in my life. In the worse times, I was indifferent to my diminishing ability and desire to spend time with God.  There are times of spiritual dryness brought on by God for our benefit, and there are times that we bring on ourselves. I wanted the benefit of communion with God without following Him to where He was.
+
 I would not admit it for several more years, but work became central to my life and I would not allow God into it. If I let Him in, He would certainly ask me to actually think about why I chose the projects that I did and how I conducted research. There was no time for that.
+
 Yet, I found plenty of time to attend many Christian lectures and bible studies and learn how to articulate my very just and wise Christian opinions. Thankfully, the great Christians circulating through my reading list began to get to me:
-No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. 
+
+     No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. [Silouan the Athanite](https://saintseraphim.com/pdf/300-Quotes-from-the-Fathers.pdf)
+
 That my favorite authors tended to be Catholic, that I went to Catholic sources for advice, that the Catholic and Orthodox saints had the love for God that I wanted, and that I could best perceive God at mass (which I attended from time to time) constantly tempted me to become Catholic. On one day I would vow to become Catholic and the next I convinced myself that pondering conversion avoided my real spiritual problems. 
 I decided to try watering my spiritual desert with deeper protestant practices. I prayed the Anglican Daily Office for a year, which helped me begin to merge my Christian and academic life. Therefore, though I had seriously pondered trying out Catholicism during my semester exchange to Tucson, Arizona, I decided again it did not make sense.  Anyway, I was afraid of being lonely.
 In Tucson, I joined another presbyterian church and made instant friends. I loved the people, the music, the ministries, and the preaching. The pastor frequently called out us pretentious, pharisaical academics. Yet being in another great church with great teaching and people did not close the gap I felt between me and God. 
