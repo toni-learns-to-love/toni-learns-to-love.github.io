@@ -273,7 +273,7 @@ module.exports = {
   // ---------------------------------------------------------------------------
   icons: {
     ico: '/favicon.ico',
-    svg: '/favicon.svg',
+    svg: '/favicon.ico',
     i192: '/icon-192.png',
     i512: '/icon-512.png',
   },
