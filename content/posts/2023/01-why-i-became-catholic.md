@@ -9,10 +9,12 @@ published: true
 hasAsides: true
 ---
 
-*My soul is thirsting for God, the God of my life; when can I enter and see the face of God?* [Psalm 42](https://www.biblegateway.com/passage/?search=Psalm%2042&version=NABRE) 
+*My soul is thirsting for God, the God of my life; when can I enter and see the face of God?*  -[Psalm 42](https://www.biblegateway.com/passage/?search=Psalm%2042&version=NABRE) 
 
-Early in college, I flipped through an old anthology of essays stored in my dad’s garage because I was a nerd and I had just been introduced to the literary essay. After reading Ben Franklin’s, I had to read the one titled ‘Science and the Savages’ because I was raised in an irreverent age, and I thought offensiveness was funny. But instead of laughing at his essay, I met the author who sang the song of my heart, G.K. Chesterton. 
-“When the whole world looks like a man we fall on our faces”
+Early in college, I flipped through an old anthology of essays stored in my dad’s garage because I was a nerd and I had just been introduced to the literary essay. After reading Ben Franklin’s, I had to read the one titled [‘Science and the Savages’](https://www.chesterton.org/science-and-the-savages/) because I was raised in an irreverent age, and I thought offensiveness was funny. But instead of laughing at his essay, I met the author who sang the song of my heart, G.K. Chesterton.
+
+: “When the whole world looks like a man we fall on our faces”
+
 I filled my sophomore-year journal with paraphrases of this concluding line. Chesterton understood me. For as long as I could think on my own, I felt like the world was hiding something. It seemed like the glory of the transfiguration was imminently going to burst forth from behind the veil of what we could see. But despite being tantalizingly close, that glorified world (which I sensed was the real one) also felt separated from me.
 My desire for a deeper life might have been inherent, but it was probably taught to me by the Baptists. Baptists used phrases that pointed me toward that reality: “God is really big”, “Every knee will bow at the sight of God”, “Christianity is the greatest adventure of your life.” I believed their words were true, but I knew my experience with Christianity did not result in the beautiful life that I imagined.
 When childhood wore off (a bit late for me, to be honest), I dropped my fantasies of a deep and exciting Christian life and convinced myself that I had the best that I could get. After all, I had an excellent Christian community, great instruction, a knowledge of who Jesus was, and I had even experienced His presence in prayer. Except the Catholic Church kept disrupting my feigned peace, making me suspicious that there actually was more available –  in fact, the very thing that I most wanted. After years of suppressing my suspicion I could no longer resist. And once I stopped resisting, I found the world that looks like a man, and I am still on my face.

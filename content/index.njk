@@ -1,11 +1,7 @@
 ---
 layout: base
 eleventyExcludeFromCollections: true
-pagination:
-  data: collections.publishedPosts
-  size: 1
-  alias: posts
-permalink: "{% if pagination.pageNumber > 0 %}/{{ pagination.pageNumber + 1 }}{% endif %}/index.html"
+permalink: /index.html
 ---
 
 <div class="site-hero">
@@ -18,7 +14,7 @@ permalink: "{% if pagination.pageNumber > 0 %}/{{ pagination.pageNumber + 1 }}{%
 
 <div class="post-list">
   <ul>
-  {% for post in posts %}
+  {% for post in collections.publishedPosts %}
     <li>
       {% include "partials/single-post-excerpt.njk" %}
     </li>
