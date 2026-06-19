@@ -1,14 +1,9 @@
 ---
-title: Sample post with asides
-description: Post description that will be visible in HTML meta description.
-date: 2023-12-28
+title: Why I became Catholic
+description: 7000 words about how I became convinced that Catholicism was drawing me nearest to Jesus and nothing else could get through my thick head.
+date: 2026-June-19
 tags:
-  - hello world
-  - sample post
-  - sample post 33
-  - test
-  - tag with pagination
-  - post with asides
+  - catholic
 hasAsides: true
 ---
 
