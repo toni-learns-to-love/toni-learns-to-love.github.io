@@ -46,7 +46,7 @@ I started my summer of figuring out Jesus with no plan. I had a research job at 
 
 I don’t think I could have had a more perfect first pull. Augustine went through the intellectual deduction I knew I had neither the time nor intelligence for. He also struggled with the same persistent longing that I did, and my journal was filled with his quotes:
 
-    “I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” [Confessions, Book 3 chapter 1](https://www.logoslibrary.org/augustine/confessions/0301.html)
+> “I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” [Confessions, Book 3 chapter 1](https://www.logoslibrary.org/augustine/confessions/0301.html)
 
 Augustine became convinced that Jesus would fill that longing. Interestingly, he assented intellectually before choosing to follow Jesus. He knew that being Christian would cost him a lot. Baptists told me that, but they never seemed real.  My friend Augustine understood something that I didn’t. But I trusted Augustine him and decided to look for Jesus anew in the bible. 
 
@@ -70,89 +70,164 @@ I would not admit it for several more years, but work became central to my life 
 
 Yet, I found plenty of time to attend many Christian lectures and bible studies and learn how to articulate my very just and wise Christian opinions. Thankfully, the great Christians circulating through my reading list began to get to me:
 
-     No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. [Silouan the Athanite](https://saintseraphim.com/pdf/300-Quotes-from-the-Fathers.pdf)
+> No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. [Silouan the Athanite](https://saintseraphim.com/pdf/300-Quotes-from-the-Fathers.pdf)
 
-That my favorite authors tended to be Catholic, that I went to Catholic sources for advice, that the Catholic and Orthodox saints had the love for God that I wanted, and that I could best perceive God at mass (which I attended from time to time) constantly tempted me to become Catholic. On one day I would vow to become Catholic and the next I convinced myself that pondering conversion avoided my real spiritual problems. 
+That my favorite authors tended to be Catholic, that I went to Catholic sources for advice, that the Catholic and Orthodox saints had the love for God that I wanted, and that I could best perceive God at mass (which I attended from time to time) constantly tempted me to become Catholic. On one day I would vow to become Catholic and the next I convinced myself that pondering conversion avoided my real spiritual problems.
+
 I decided to try watering my spiritual desert with deeper protestant practices. I prayed the Anglican Daily Office for a year, which helped me begin to merge my Christian and academic life. Therefore, though I had seriously pondered trying out Catholicism during my semester exchange to Tucson, Arizona, I decided again it did not make sense.  Anyway, I was afraid of being lonely.
+
 In Tucson, I joined another presbyterian church and made instant friends. I loved the people, the music, the ministries, and the preaching. The pastor frequently called out us pretentious, pharisaical academics. Yet being in another great church with great teaching and people did not close the gap I felt between me and God. 
-But I thought the deserts of Arizona might just do the trick. The especially wet spring watered beautiful wildflowers and created a vibrant ephemeral stream. One day, I hiked up Ventana Canyon to ask God why my life felt so off target. I was not coming down without the answer. And I did get an answer: clear, surprising and simple. God asked who I wanted to become.  
-I knew my answer immediately. I always envisioned myself as someone whose mission in life was to create opportunities for those less fortunate. I wanted to build community for young people and use my work to create a more just and beautiful world. I wanted to own little and be generous. I wanted to love much and have a home where all were welcome. And I knew that in my daily life I was not becoming that person. Yet I had the bashful feeling that she was not only real, but realer than who I was .  
-4.	Some people get religion; some people get the truth… I never get the truth 
+
+But I thought the deserts of Arizona might just do the trick. The especially wet spring watered beautiful wildflowers and created a vibrant ephemeral stream. One day, I hiked up Ventana Canyon to ask God why my life felt so off target. I was not coming down without the answer. And I did get an answer: clear, surprising and simple. God asked who I wanted to become. 
+
+I knew my answer immediately. I always envisioned myself as someone whose mission in life was to create opportunities for those less fortunate. I wanted to build community for young people and use my work to create a more just and beautiful world. I wanted to own little and be generous. I wanted to love much and have a home where all were welcome. And I knew that in my daily life I was not becoming that person. Yet I had the bashful feeling that she was not only real, but realer than who I was.  
+
+[4.	Some people get religion; some people get the truth… I never get the truth](https://www.youtube.com/watch?v=FJIZr6MN1xQ&list=RDFJIZr6MN1xQ&start_radio=1)
+
 But then I started getting closer to an old Baptist friend I had grown up with. He loved music and adventures, and he also wanted a deep life with God. But he would never become Catholic. So, I had my answer against my non-committal flirtation with Catholicism and I decided to shut the door on the possibility.
+
 One evening while getting ready for bed, I remembered the friend who took me to mass for the first time. I hadn’t thought about her in years. I thought it would be interesting to meet back up with someone whose tiny invitation proved so influential and provocative. But I had no way to contact her and when I looked her up I found she kept no internet presence.
-I can’t remember the circumstances, but the very next day, I decided to eat lunch out (which was rare), at 2:30 (which was very late), at a pizza restaurant about 25 minutes away from my office (which was far). I ordered a pizza and salad and went out onto the small enclosed patio. Halfway through lunch, that Catholic friend from the dorm walked out onto the patio with a yuzu juice. 
-Eyes opened wide in shock, I called out to her and she smiled and came right over and sat down. We asked each other why we were in Tucson. We asked eachother why we were at Time Market at that odd hour. I told her she had just come to mind the night before. And then I also told her that I had been drawn to Catholicism ever since I went to mass with her that first time. She was the first person I admitted my interest in Catholicism to. We restarted our friendship.  
+
+I can’t remember the circumstances, but the very next day, I decided to eat lunch out (which was rare), at 2:30 (which was very late), at a pizza restaurant about 25 minutes away from my office (which was far). I ordered a pizza and salad and went out onto the small enclosed patio. Halfway through lunch, that Catholic friend from the dorm walked out onto the patio with a yuzu juice.
+
+Eyes opened wide in shock, I called out to her and she smiled and came right over and sat down. We asked each other why we were in Tucson. We asked eachother why we were at Time Market at that odd hour. I told her she had just come to mind the night before. And then I also told her that I had been drawn to Catholicism ever since I went to mass with her that first time. She was the first person I admitted my interest in Catholicism to. We restarted our friendship.
+
 Meanwhile, my Baptist boyfriend and I began disagreeing on faith early in our relationship. I tried introducing him to the liturgy and G.K. Chesterton, and he was also trying to wow me with John Piper, Johnathan Pokluda, and John Mark Comer. We argued extensively about how scripture should influence our lives, especially about laws, modesty and the role of women. I hadn’t realized how far I had shifted from my theological upbringing since I moved from Arizona. Yet, we tolerated each others’ points of view.
-When my semester abroad ended, I returned to Ithaca and my home presbyterian church. I rekindled friendships with those I had left behind, and met new friends who arrived while I was away. I regularly had lunch with my closest friend from my presbyterian church, where we talked about how God was working in our lives. 
+
+When my semester abroad ended, I returned to Ithaca and my home presbyterian church. I rekindled friendships with those I had left behind, and met new friends who arrived while I was away. I regularly had lunch with my closest friend from my presbyterian church, where we talked about how God was working in our lives.
+
 At one of those lunch meetings, she confessed that the way God was working in her life was by drawing her to Catholicism. 
-I never would have guessed. And suddenly I was no longer alone. Not only was I not alone, but I had been given one of my best friends to accompany me on my journey -- if I chose to take her invitation. Or was I still being resolutely protestant? If I concurred, I would be accountable for my Catholic ponderings. I was given a new chance to explore Catholicism, but now it was less daunting, and I felt less foolish because a very reasonable person felt the same way I did. 
+
+I never would have guessed. And suddenly I was no longer alone. Not only was I not alone, but I had been given one of my best friends to accompany me on my journey -- if I chose to take her invitation. Or was I still being resolutely protestant? If I concurred, I would be accountable for my Catholic ponderings. I was given a new chance to explore Catholicism, but now it was less daunting, and I felt less foolish because a very reasonable person felt the same way I did.
+
 I told her I was also experiencing the draw. 
-5.	Just give me one thing that I can hold on to 
+
+[5.	Just give me one thing that I can hold on to](https://www.youtube.com/watch?v=U6cagWYTGCY&list=RDU6cagWYTGCY&start_radio=1)
+
 Now that I had a friend to accompany me on my journey, I started more seriously considering what my desire to be Catholic meant. I felt I needed to answer two questions: first, whether the draw I felt was to the greatest good, Christ himself, and second, whether the Catholic Church was effective in bringing me nearer to Christ.
-I thought that if the answer to the first two questions was ‘yes’, other lesser questions were moot. That meant that I did not spend a lot of time pondering the standard protestant grievances like apostolic succession, praying the Hail Mary, the pope, the apocrypha and such. 
-I thought the way to answer the questions was through continued experience in the protestant and Catholic church. Written arguments about whether Christ was somehow ‘more present’ in the Catholic Church were not going to work. Theologians from both sides were too convincing, and they used different axioms for how to draw conclusions. But I thought that sensing Christ’s presence and growing closer and more like Him should all be verifiable through experience. 
+
+I thought that if the answer to the first two questions was ‘yes’, other lesser questions were moot. That meant that I did not spend a lot of time pondering the standard protestant grievances like apostolic succession, praying the Hail Mary, the pope, the apocrypha and such.
+
+I thought the way to answer the questions was through continued experience in the protestant and Catholic church. Written arguments about whether Christ was somehow ‘more present’ in the Catholic Church were not going to work. Theologians from both sides were too convincing, and they used different axioms for how to draw conclusions. But I thought that sensing Christ’s presence and growing closer and more like Him should all be verifiable through experience.
+
 I started attending mass weekly in addition to my presbyterian service, and God always felt closer at mass. I thought it might just be the novelty of it, so I was going to wait.
+
 I went back to Arizona for a second semester abroad in the fifth year of my PhD. During the holidays, the tension from years of maltreatment and cover-ups of real problematic behavior finally shattered my parents’ marriage. I experienced my childhood Baptist church take the side of the perpetrator and fail to offer any support to the victims. I was not surprised – the church did the same when the situation first erupted eight years before. I knew how their legalistic, cherry-picked ‘scripture alone’ would be applied, even though my ‘scripture alone’ approach led me to different conclusions.  My boyfriend and I broke up relating to the fallout from the events. 
+
 All I wanted to do at church was pour out my tears and confusion on God. Although I am sure there is space for that kind of Job-like worship in the protestant church, I never felt like it was appropriate. It was ingrained into me that church was a time of corporate fellowship, which meant happy small talk. I usually loved it. But during that time, I wanted to be as far away as possible from that wall of people whom I would have to break through before getting to my seat. They would all ask me about my week and then fail to walk with me through it. I sometimes drove myself to church but didn’t go inside. 
-But I could always go to mass. I could always gaze upon the suffering savior on the crucifix. I would not be the only one praying my myself. It was comforting. Despite praying alone I never felt alone.  
-I continued going to mass through the summer and early fall. After about nine months, I decided I would take another step toward the Catholic Church and begin attending bible study, prayer and catechism classes. 
-Catholic bible study radically applied the gospel. Early in the year, we read story of the Rich man and Lazarus. We discussed the symbolic interpretation of the passage, which was about bringing the Gentiles into the plan of salvation. I asked the bible study teacher about its literal meaning. He said the literal meaning was obvious. We must be exceptionally generous to the poor.  He said he should be giving away his savings to feed the poor, and he should pray to be holy enough want to do so and to actually do it. He invited us to plan to give hot food to the poor during winter in lieu of bible study. 
+
+But I could always go to mass. I could always gaze upon the suffering savior on the crucifix. I would not be the only one praying my myself. It was comforting. Despite praying alone I never felt alone.
+
+I continued going to mass through the summer and early fall. After about nine months, I decided I would take another step toward the Catholic Church and begin attending bible study, prayer and catechism classes.
+
+Catholic bible study radically applied the gospel. Early in the year, we read story of the Rich man and Lazarus. We discussed the symbolic interpretation of the passage, which was about bringing the Gentiles into the plan of salvation. I asked the bible study teacher about its literal meaning. He said the literal meaning was obvious. We must be exceptionally generous to the poor.  He said he should be giving away his savings to feed the poor, and he should pray to be holy enough want to do so and to actually do it. He invited us to plan to give hot food to the poor during winter in lieu of bible study.
+
 After 15 years of protestant bible study, no one had ever challenged me to apply Jesus’s words about generosity literally. Instead, when Jesus told us to “Give to everyone who asks you”, I was told that ‘Jesus was exaggerating…’, or ‘Jesus didn’t really mean…’, or ‘Jesus’s words are only meant to show us our failure…’,  or even ‘Giving to the poor is bad for them, so in order to love them we do X instead…’ 
+
 I was given the challenge to be the generous person I dreamed to be. It terrified me.  Becoming like Christ meant suffering on behalf of others and trusting God enough to love people beyond our means. It also meant looking insane. But deep down, isn’t that who we want to be? And who we, when we feel imaginative and a bit silly, think we really can be?
-I was convinced I wanted to be Catholic on the witness of the church’s teaching and the continual ministering of the mass in my life. 
-6.	You got your passion, you got your pride 
+I was convinced I wanted to be Catholic on the witness of the church’s teaching and the continual ministering of the mass in my life.
+
+[6.	You got your passion, you got your pride](https://www.youtube.com/watch?v=wccRif2DaGs&list=RDwccRif2DaGs&start_radio=1)
+
 Yet, I couldn’t do it. I could not bear the thought of breaking communion with the protestant church. I knew it would hurt, I knew I wouldn’t be the same as my protestant friends anymore, and I knew that I would be making a statement about their inclusion in the ‘one true church.’ I was not convinced enough of Catholicism for that.
-In October of the final year of my PhD, the economics job market began. My research portfolio had all been aimed at that moment. I practiced for interviews, I edited my job market paper, and I applied to dozens of jobs every week. Yet, I received no interest from the research professorships I had most wanted. The time I invested, the incredible support from my committee and the opportunities they gave me were not enough. 
+
+In October of the final year of my PhD, the economics job market began. My research portfolio had all been aimed at that moment. I practiced for interviews, I edited my job market paper, and I applied to dozens of jobs every week. Yet, I received no interest from the research professorships I had most wanted. The time I invested, the incredible support from my committee and the opportunities they gave me were not enough.
+
 And finally, the fool realized her folly. A PhD is an accomplishment no matter its outcome. However, I had spent six years trying to build a portfolio the profession would be impressed with rather than one I would be proud of. And when after six years the profession was not impressed, I had nothing. I had done everything backwards! I did my work and justified why God would find it beautiful and important instead of first praying about what work God would find beautiful and important. 
+
 I realized how easy it was to waste an entire life.
+
 I received exactly one offer on the job market.  It was not in a department I wanted, not the position I wanted, not the topic I wanted, nor even the country I wanted. The humiliating thing was that I realized the position was better than what I wanted.
+
 I was hired to do policy-relevant research in AI, a topic and interdisciplinary field not valued by the economics profession, but highly valued by the public. It was what I verbally touted was the important kind of research, but which I never did. I also had wishful dreams of going to Europe and connecting with family and using my love of languages, but I never planned to make those dreams reality. Even better, the pay was good, the work schedule and benefits were ideal and I could still be associated with an economics department.
+
 It was a gift. God gave me a reset. I had a new chance to live for Him. I wanted to immediately make the most of my second chance.  God’s mercy made me repent. I realized again how much like Augustine’s my wandering had been:
-I myself was exceedingly astonished as I anxiously reflected how long a time had elapsed since the nineteenth year of my life, when I began to burn with a zeal for wisdom, planning that when I had found it I would abandon all the empty hopes and lying follies of hollow ambitions. And here I was already thirty, and still mucking about in the same mire in a state of indecision, avid to enjoy present fugitive delights which were dispersing my concentration, while I was saying: ‘Tomorrow I shall find it…’
+
+> I myself was exceedingly astonished as I anxiously reflected how long a time had elapsed since the nineteenth year of my life, when I began to burn with a zeal for wisdom, planning that when I had found it I would abandon all the empty hopes and lying follies of hollow ambitions. And here I was already thirty, and still mucking about in the same mire in a state of indecision, avid to enjoy present fugitive delights which were dispersing my concentration, while I was saying: ‘Tomorrow I shall find it…’ [Confessions book 8 chapter 7](https://www.logoslibrary.org/augustine/confessions/0807.html)
+
 I decided to confess and start anew. I opened my Catholic prayer book to the prayers of confession and found an examination of conscience next to them. I had never done one, and I remember getting through about five questions:
-Did I often consider that God is my father?
-Did I offer him my work? 
-Did I make good use of my time?
-Did I pray slowly and with attention?
-Did I try to make life pleasant for other people?
+
+> Did I often consider that God is my father?
+> Did I offer him my work? 
+> Did I make good use of my time?
+> Did I pray slowly and with attention?
+> Did I try to make life pleasant for other people? [source](https://svdprcia.wordpress.com/wp-content/uploads/2009/03/brief-examination-at-night_2.pdf)
 
 Five of five no’s to characterize my PhD. I was wrecked – truly contrite for the first time in a very long time. The examination of conscience concluded in hope for a new day: “Make a specific resolution for tomorrow.” I decided I would pray to invite God into my work.
+
 The next day, as I sat down at my desk, I made a tiny prayer about what research tasks were important. Throughout the day it felt as though my heart was melting. The feeling grew and became overwhelming by evening.
+
 I had moved both one tiny step toward the life I was looking for, and a million miles from where I began the day before. The life I wanted was not too good to be true. I realized that when Jesus said ‘Follow me’, I actually had agency to move. I waited a few days before concluding that the change I felt in my life wasn’t merely some excess of caffeine. I decided it was time to become Catholic, whether or not I had to break communion. I realized we could have life abundant, but that it would take infinite grace to accomplish it, and that I needed that grace immediately.
-7.	Calm down Andrey, there’s no secret 
+
+[7.	Calm down Andrey, there’s no secret](https://www.youtube.com/watch?v=29l3BXaOGrM&list=RD29l3BXaOGrM&start_radio=1)
+
 I began telling more people that I was becoming Catholic, including the pastor of my presbyterian church. He wanted to talk to me about it, which made me realize I needed to figure out theologically why I felt drawn to the Catholic Church. 
+
 I did not know if the experiences that convinced me of Catholicism were fundamentally Catholic, or whether a different string of experiences within a protestant church could have led me to a different conclusion. I wondered whether another church could have made Jesus seem abundantly present, or whether my conservative protestant churches would literally interpret the Sermon on the Mount. I wondered whether a protestant church would ever recommend me to do examinations of conscience and if they could instill in me the desire to be like Christ. I wondered whether the change occurring in myself was good. 
+
 At the time, I concluded three points. First, that the Catholic view of sanctification gave me the motivation to become like Christ. Second, the Catholic view of sanctification was in line with scripture, especially the gospels. Third, if the Catholic view of sanctification was true, it seemed important that their view of the Eucharist was true. 
+
 Given that most of us spend more time being Christian than considering Christianity, I thought that the protestant churches I attended focused far too little on our lives after choosing to follow Christ. The explanations of why to become like Christ and how it works were contradictory or unsatisfying. I heard that works flow naturally out of thankfulness, that we should be aiming for rewards in heaven, and that the Holy Spirit prompts all good works. Unfortunately, I was never a very thankful person, I had trouble conceptualizing the wonders of heaven, and I could not discern the difference between the Holy Spirit’s prompting versus ‘temptations to work for my salvation.’ 
+
 The best protestant answer I heard for why we should become like Jesus is that Jesus is our Lord, so we should obey him, and that obeying him results in our supreme happiness, which is glorifying and enjoying the Lord . The formulation satisfied what seemed true about the world. We have to practice being good even if we are Christians, but we like to be good. We feel like we can get closer to God, and that we can love him and enjoy him more. Therefore, the purpose of life is to enjoy the gift we have been given, which includes sharing that gift with others. And as I understand, we are already fully united to Christ because he paid everything and reconciled us to God.
+
 Protestant theology sounds beautiful but in practice left me aimless. The problem was that as a protestant, my story was complete – the greatest gift was acquired! – and everything else felt like a long divine epilogue. In the post-justification life, enjoying Jesus was good but hard. It felt like I could skip that hard stuff by just enjoying him in heaven. You might say I didn’t have enough faith to believe that enjoying God more on earth was worth the suffering. And I didn’t. God help my lack of faith! Or you might say I just didn’t believe the rewards in heaven would be worth it. And I didn’t! Perhaps God just designed me for a less good heaven than the rest of you all (but would still perfect, right??)
+
 Fallen humans, especially me, are much better at acquiring than enjoying what they have acquired. But being protestant, I was left both unable to fully comprehend what I had acquired, and also without anything left to acquire. I was told I was fully united with God, yet I wondered whether I would really be happy spending all day with God praising Him. I wondered at what point there would be some divine laundromat that would zap off my obstinate imperfect flesh that would inhibit my enjoyment of living in the New Earth. Too bad protestants didn’t believe in purgatory. 
 In Catholicism, the gift of salvation is the process of growing nearer to, and more like Jesus, while the goal is the full union with Christ. The goal is the only fully satisfying thing, it is very comprehensible, and we can savor every step closer to it. 
-Because the Catholic formulation of salvation includes a process needing completion, protestants object that Catholics work to earn it. I would respond that although salvation requires cooperation and action, God still accomplishes everything through our faith. 
+
+Because the Catholic formulation of salvation includes a process needing completion, protestants object that Catholics work to earn it. I would respond that although salvation requires cooperation and action, God still accomplishes everything through our faith.
+
 We get very few stories of what it looks like to follow Jesus in the bible: eleven disciples, Paul, Stephen, and some others in Acts. All the people in Acts already figured out following Jesus and were ready to be martyred. I might never have that faith. However, I get a more relatable example in the disciples. They are transformed throughout the gospels, from ordinary fishers and tax collectors to leaders, world travelers, and martyrs who changed history. Their transformation required faith, and their faith was displayed in doing what Jesus commanded. Peter dropped his net when Jesus called ‘follow me.’ Did the act earn his salvation? No, his faith did. But without the act, there was no faith.
+
 Who would say the disciples worked for their salvation by distributing food to four thousand people? No one. Instead, we say ‘wow, look what Jesus did with their pitiful faith.’ Similarly, if I resolve reluctantly to give my officemate a little more attention in order to learn to love him more, would you accuse me of working for my salvation? I promise that the action is not good enough to get me to heaven. In faith, I believe Jesus will do something with my small gesture. And you can be amazed: Jesus accepts our underwhelming actions and miraculously turns our hearts of stone into hearts of flesh.
+
 There is nothing that required more faith than the disciples giving up their regular lives to walk with Jesus. Like us, they did not know everything Jesus would ask them to do, nor everything he would ask them to give up. They did not know how amazing it would be. But their faith grew over time, and Jesus always called them to greater faith. Despite the amazing transformation of the disciples, their stories are all eclipsed by the story’s central character. 
+
 Merely by their interaction with Jesus, the apostles became like him. Likewise, it would be great if we could have that same, continual, growing, life-altering interaction with Jesus. And since prayer is hard, and meditating on scripture is hard, taking Jesus into ourselves with the Eucharist is the one perfect gift of Jesus that we get with very little effort of our own. I just hoped it was real. 
+
 I met with my presbyterian pastor but was still ready to move forward with becoming Catholic. 
-8.	And my heart aches with sorrow as I hit the road 
+
+[8.	And my heart aches with sorrow as I hit the road](https://www.youtube.com/watch?v=8nV1TgAhnIc&list=RD8nV1TgAhnIc&start_radio=1)
+
 The next step in the journey to Catholicism was the penitential rite, the admittance into the sacrament of reconciliation (confession). I only realized later how powerful my first confession was. Many Catholic converts talk about their first confession as “the moment they first realized God truly forgave them.” That’s not what I felt. I do not struggle with the idea that God would forgive me. 
-Instead, my first confession made me realize how seriously I sin. I didn’t expect the feeling because I had confessed in my own prayers and in corporate confessions in the presbyterian church. But there was really something different about having to prepare a list of sins, and then go tell them to the priest that I knew and whom I respected as a holy person. I had to sit there as the priest took my sins seriously and minimized none of them.  Confession is embarrassing and I think that’s why people think it’s bad. I had to tell a human that ‘yes, I’m really like this.’ I had to realize that Jesus was outside of myself and cared how I treated others. Then I had to sit there and hear the assurance of forgiveness, realizing that God had to forgive me of a lot. I felt how far away someone like me, empty of love, was from being holy. 
+
+Instead, my first confession made me realize how seriously I sin. I didn’t expect the feeling because I had confessed in my own prayers and in corporate confessions in the presbyterian church. But there was really something different about having to prepare a list of sins, and then go tell them to the priest that I knew and whom I respected as a holy person. I had to sit there as the priest took my sins seriously and minimized none of them.  Confession is embarrassing and I think that’s why people think it’s bad. I had to tell a human that ‘yes, I’m really like this.’ I had to realize that Jesus was outside of myself and cared how I treated others. Then I had to sit there and hear the assurance of forgiveness, realizing that God had to forgive me of a lot. I felt how far away someone like me, empty of love, was from being holy.
+
 Confession was a good kind of painful. But before becoming Catholic, I also had to break communion with my protestant brothers and sisters, which was the bad kind of painful. I dreaded the moment.
+
 I broke communion somewhat publicly, by crossing my arms over my chest at the distribution in my presbyterian church. It hurt like the moment of a break-up in a relationship.
-Some of my protestant friends and teachers were also hurt by my breaking of communion. When I think about it rationally, it does not make sense why it should be so painful. We all remain Christian brothers and sisters. My close friendships with protestants were not broken. The protestants I discussed my conversion with see little danger to my soul. Some seem offended at my joining a body that declares their Eucharist ‘invalid,’ but invalidity does not even deny that God works through the sacraments of all Christian churches . Invalidity is a statement about the differences in our institutions, and as we have picked different institutions we must think that they are different.
+
+Some of my protestant friends and teachers were also hurt by my breaking of communion. When I think about it rationally, it does not make sense why it should be so painful. We all remain Christian brothers and sisters. My close friendships with protestants were not broken. The protestants I discussed my conversion with see little danger to my soul. Some seem offended at my joining a body that declares their Eucharist ‘invalid,’ but invalidity does not even deny that God works through the sacraments of all Christian churches . Invalidity is a statement about the differences in our institutions, and as we have picked different institutions we must think that they are different. [see Vatican II, 'The brethren divided from us...'](https://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_unitatis-redintegratio_en.html)
+
 But the pain of the loss of communion and the feeling of division transcends the simple rational rebuttals. I think we are feeling the searing pain of division in Christ’s body. We say we are the same, or that we all reflect the full glory of Christ together. But when we must touch the divide, we feel it. I hate it, I hate being apart in any way from my Christian friends who are better and more faithful Christians than I am. 
-9.	Living deeply our new life 
+
+[9.	Living deeply our new life](https://www.youtube.com/watch?v=i1ntir3qgdY&list=RDi1ntir3qgdY&start_radio=1) 
+
 Because of breaking communion, the weeks leading up to my confirmation were filled with mourning for what I was giving up. It was also the end of a long and hard lent because having more Catholic friends meant I was accountable for my resolutions. I realized being Catholic would be much harder than being protestant, and less fun. I wondered if what the church offered would be enough to make up for it. 
+
 By God’s grace, I was scheduled to be confirmed two weeks later than the tradition, meaning I would experience Easter before confirmation.
 I spent Easter with the family of my presbyterian friend who became Catholic (along with her parents) about a year earlier than I did. We had a very Catholic time, attending masses three days in a row, and having a lot of discussions. It was beautiful, but I was hesitant because of my sadness and fear. 
+
 We went to Easter Sunday mass in a small brick Catholic Church right on the Atlantic coast. When it was over, my friend and I had some time while her parents were mingling with others. My friend and I are both a bit shy, so I suggested we look around, like at the statue of her confirmation saint, St. Therese of Lisieux. 
+
 I was (and am) new to Catholic things and I didn’t know why there are statues in churches. I observed the sculpted roses in St. Therese’s arms, and I thought about her story. I quickly finished pondering.  However, I had the growing sensation that my friend was really communing presently with St. Therese. I looked at my friend, and she looked back at me as if everything was normal. But the apparent normalcy of my surroundings did not convince me that nothing was happening . Obviously I was some weird third wheel so I walked away to look at the stained glass and also to have an internal breakdown.
-My catechist had told me that during mass the saints were praising God alongside us. I believed it was true, but not so tangibly real, like in they-are-actually-here-and-our-actual-friends kind of way. The veil between our physical world and the transfigured world suddenly seemed breached. The kingdom of God could easily spill across. It was here. I wondered about Jesus…I believed he was present in mass and elsewhere and I sensed him seeming closer. But I wondered what it meant if He could really be here in this room in the same way my friend was. 
-I had heard of thee by the hearing of the ear, but now my eye sees thee; therefore I repent in dust and ashes 
+
+My catechist had told me that during mass the saints were praising God alongside us. I believed it was true, but not so tangibly real, like in they-are-actually-here-and-our-actual-friends kind of way. The veil between our physical world and the transfigured world suddenly seemed breached. The kingdom of God could easily spill across. It was here. I wondered about Jesus…I believed he was present in mass and elsewhere and I sensed him seeming closer. But I wondered what it meant if He could really be here in this room in the same way my friend was.
+
+> I had heard of thee by the hearing of the ear, but now my eye sees thee; therefore I repent in dust and ashes [Job 42](https://www.biblegateway.com/passage/?search=Job%2042&version=NABRE)
+
 It meant sheer bliss and terror. The world I hoped for was here. Hallelujah! And I would have to become a woman worthy of it. Painful. Impossible. But with God’s help, nothing is impossible. Not with Jesus taking me by the hand. Did I want it? How could I refuse? I saw the box opened a crack and I could not unopen it if I tried. I had to become Catholic.
+
 So, I became Catholic convinced that I would experience God in a much fuller, realer way than I ever had. In my first few weeks of being Catholic, the hunch was verified. There was no dramatic change after confirmation, but rather I grew consistently closer to God. It seemed like Jesus was everywhere and the world was transforming. I went to a lecture on mental prayer where my catechist gave us the formula for prayer described by many saints in different ways. We were told when we start we would only really be able to pray for about five minutes at a time, but that if we persisted it would change our lives. I tried it out and only lasted about two minutes. But already, I had sensed the Spirit’s instruction and presence clearer than ever.  
+
 And then I freaked out. It was too overwhelming. I stopped praying and stopped going to mass. As a new Catholic, my behavior now constituted mortal sin. I had rejected Jesus, which excluded me from communion. I needed to go to confession to be readmitted. 
+
 I hated the rules I had bound myself to. Mostly I was embarrassed that I had to verbally and openly admit my weakness. Perhaps I had an exceptional priest, but he was always merciful when I wanted judgment, and I learned then that he was firm when I wanted laxity.
+
 I felt hesitant and defeated for a time. But I kept taking small steps and eventually tried out mental prayer again. I felt led to pray about what I am afraid of. I still don’t know the answer.
+
 Every day, I feel the reality of the words impressed on me as a child. Surrender. Take up your cross. Repent. Trust in God. God is merciful. God is slow to anger. In His presence there is fullness of joy. 
-I do not expect this essay to be convincing to anyone, but I hope at the least I convinced you that I should have become Catholic. Maybe because I am crazy. If anyone else is feeling like there is more to life, I encourage you to take the words of my confirmation saint, Augustine, to heart: “Look for what you are looking for…”
+
+I do not expect this essay to be convincing to anyone, but I hope at the least I convinced you that I should have become Catholic. Maybe because I am crazy. If anyone else is feeling like there is more to life, I encourage you to take the words of my confirmation saint, Augustine, to heart: “Look for what you are looking for…” [Confessions book 4 chapter 12](https://www.logoslibrary.org/augustine/confessions/0412.html)
+
