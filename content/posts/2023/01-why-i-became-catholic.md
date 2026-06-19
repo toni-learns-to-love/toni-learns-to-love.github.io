@@ -40,7 +40,7 @@ Instead, I again got more than I was looking for. Unlike my Baptist services, th
 
 I left my first mass liking the Catholic church.
 
-[2.	Veiled in flesh the Godhead see](https://www.youtube.com/watch?v=mfBAm-TnPks)
+[**2.	Veiled in flesh the Godhead see**](https://www.youtube.com/watch?v=mfBAm-TnPks)
 
 I started my summer of figuring out Jesus with no plan. I had a research job at the library at University of Arizona that summer, and I claimed myself a desk amid the Christian classics. I thought I might as well start anywhere. I wandered through the stacks during my breaks, and I pulled the first book whose title caught my eye (because it was juicy): Confessions. This guy I had never heard of named Augustine wrote it. He intriguingly was writing about his conversion around 400AD. 
 
@@ -54,7 +54,7 @@ The faith of my senior year of college was fresh and exciting. I couldn’t wait
 
 However, my year of wonder ended abruptly. Covid struck, churches paused services, and then radicalized. People disappeared in isolation. College ended without any goodbyes. I moved quietly to start a new chapter in a small town in upstate New York.
 
-[3.	Why won’t you speak where I happen to be?](https://www.youtube.com/watch?v=Apq5VQTMreE&list=RDApq5VQTMreE&start_radio=1)
+[**3.	Why won’t you speak where I happen to be?**](https://www.youtube.com/watch?v=Apq5VQTMreE&list=RDApq5VQTMreE&start_radio=1)
 
 My PhD opened the door to a radically new life – a new town, new scenery, new climate, new friends, and a new culture. I thought I might also try out a new denomination. I considered Catholicism for a moment, but I thought if going to Catholic mass made such a big impression, another (less weird) denomination might be even better.
 
@@ -82,7 +82,7 @@ But I thought the deserts of Arizona might just do the trick. The especially wet
 
 I knew my answer immediately. I always envisioned myself as someone whose mission in life was to create opportunities for those less fortunate. I wanted to build community for young people and use my work to create a more just and beautiful world. I wanted to own little and be generous. I wanted to love much and have a home where all were welcome. And I knew that in my daily life I was not becoming that person. Yet I had the bashful feeling that she was not only real, but realer than who I was. [(C.S. Lewis' Weight of Glory describes this better)](https://www.doxaweb.com/assets/weight_of_glory.pdf) 
 
-[4.	Some people get religion; some people get the truth… I never get the truth](https://www.youtube.com/watch?v=FJIZr6MN1xQ&list=RDFJIZr6MN1xQ&start_radio=1)
+[**4.	Some people get religion; some people get the truth… I never get the truth**](https://www.youtube.com/watch?v=FJIZr6MN1xQ&list=RDFJIZr6MN1xQ&start_radio=1)
 
 But then I started getting closer to an old Baptist friend I had grown up with. He loved music and adventures, and he also wanted a deep life with God. But he would never become Catholic. So, I had my answer against my non-committal flirtation with Catholicism and I decided to shut the door on the possibility.
 
@@ -102,7 +102,7 @@ I never would have guessed. And suddenly I was no longer alone. Not only was I n
 
 I told her I was also experiencing the draw. 
 
-[5.	Just give me one thing that I can hold on to](https://www.youtube.com/watch?v=U6cagWYTGCY&list=RDU6cagWYTGCY&start_radio=1)
+[**5.	Just give me one thing that I can hold on to**](https://www.youtube.com/watch?v=U6cagWYTGCY&list=RDU6cagWYTGCY&start_radio=1)
 
 Now that I had a friend to accompany me on my journey, I started more seriously considering what my desire to be Catholic meant. I felt I needed to answer two questions: first, whether the draw I felt was to the greatest good, Christ himself, and second, whether the Catholic Church was effective in bringing me nearer to Christ.
 
@@ -127,7 +127,7 @@ After 15 years of protestant bible study, no one had ever challenged me to apply
 I was given the challenge to be the generous person I dreamed to be. It terrified me.  Becoming like Christ meant suffering on behalf of others and trusting God enough to love people beyond our means. It also meant looking insane. But deep down, isn’t that who we want to be? And who we, when we feel imaginative and a bit silly, think we really can be?
 I was convinced I wanted to be Catholic on the witness of the church’s teaching and the continual ministering of the mass in my life.
 
-[6.	You got your passion, you got your pride](https://www.youtube.com/watch?v=wccRif2DaGs&list=RDwccRif2DaGs&start_radio=1)
+[**6.	You got your passion, you got your pride**](https://www.youtube.com/watch?v=wccRif2DaGs&list=RDwccRif2DaGs&start_radio=1)
 
 Yet, I couldn’t do it. I could not bear the thought of breaking communion with the protestant church. I knew it would hurt, I knew I wouldn’t be the same as my protestant friends anymore, and I knew that I would be making a statement about their inclusion in the ‘one true church.’ I was not convinced enough of Catholicism for that.
 
@@ -159,7 +159,7 @@ The next day, as I sat down at my desk, I made a tiny prayer about what research
 
 I had moved both one tiny step toward the life I was looking for, and a million miles from where I began the day before. The life I wanted was not too good to be true. I realized that when Jesus said ‘Follow me’, I actually had agency to move. I waited a few days before concluding that the change I felt in my life wasn’t merely some excess of caffeine. I decided it was time to become Catholic, whether or not I had to break communion. I realized we could have life abundant, but that it would take infinite grace to accomplish it, and that I needed that grace immediately.
 
-[7.	Calm down Andrey, there’s no secret](https://www.youtube.com/watch?v=29l3BXaOGrM&list=RD29l3BXaOGrM&start_radio=1)
+[**7.	Calm down Andrey, there’s no secret**](https://www.youtube.com/watch?v=29l3BXaOGrM&list=RD29l3BXaOGrM&start_radio=1)
 
 I began telling more people that I was becoming Catholic, including the pastor of my presbyterian church. He wanted to talk to me about it, which made me realize I needed to figure out theologically why I felt drawn to the Catholic Church. 
 
@@ -188,7 +188,7 @@ Merely by their interaction with Jesus, the apostles became like him. Likewise, 
 
 I met with my presbyterian pastor but was still ready to move forward with becoming Catholic. 
 
-[8.	And my heart aches with sorrow as I hit the road](https://www.youtube.com/watch?v=8nV1TgAhnIc&list=RD8nV1TgAhnIc&start_radio=1)
+[**8.	And my heart aches with sorrow as I hit the road**](https://www.youtube.com/watch?v=8nV1TgAhnIc&list=RD8nV1TgAhnIc&start_radio=1)
 
 The next step in the journey to Catholicism was the penitential rite, the admittance into the sacrament of reconciliation (confession). I only realized later how powerful my first confession was. Many Catholic converts talk about their first confession as “the moment they first realized God truly forgave them.” That’s not what I felt. I do not struggle with the idea that God would forgive me. 
 
@@ -202,7 +202,7 @@ Some of my protestant friends and teachers were also hurt by my breaking of comm
 
 But the pain of the loss of communion and the feeling of division transcends the simple rational rebuttals. I think we are feeling the searing pain of division in Christ’s body. We say we are the same, or that we all reflect the full glory of Christ together. But when we must touch the divide, we feel it. I hate it, I hate being apart in any way from my Christian friends who are better and more faithful Christians than I am. 
 
-[9.	Living deeply our new life](https://www.youtube.com/watch?v=i1ntir3qgdY&list=RDi1ntir3qgdY&start_radio=1) 
+[**9.	Living deeply our new life**](https://www.youtube.com/watch?v=i1ntir3qgdY&list=RDi1ntir3qgdY&start_radio=1) 
 
 Because of breaking communion, the weeks leading up to my confirmation were filled with mourning for what I was giving up. It was also the end of a long and hard lent because having more Catholic friends meant I was accountable for my resolutions. I realized being Catholic would be much harder than being protestant, and less fun. I wondered if what the church offered would be enough to make up for it. 
 
