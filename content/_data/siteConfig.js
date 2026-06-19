@@ -9,12 +9,12 @@ module.exports = {
     // OpenGraph tags and feeds.
     // Can also be used anywhere on the site as a Nunjucks variable:
     // {{ siteConfig.site.logo }}
-    title: 'Bliss',
+    title: 'toni learns to love',
     // Site description. Used in many places, including meta title,
     // OpenGraph tags and feeds.
     // It is also used as a fallback description if no custom description
     // is provided for a page / post.
-    description: 'Simple Eleventy blog template',
+    description: 'where i formally think about economics and the environment and jesus for no audience.  writing helps me think so this is for me. hello if you ended up here. this will not be updated often.',
     // Production URL. Used by 'alwaysProductionUrl' filter.
     // If none is provided, relative paths will be used
     // and in some cases (like sitemap.xml) that is TOTALLY NOT what you want
@@ -32,7 +32,7 @@ module.exports = {
     // with {% currentYear %} expression
     // so that you don't have to update the copyright year
     // in your footer by hand ever again :)
-    startYear: 2022,
+    startYear: 2026,
     // Generator information to display in <html> tag and the site footer.
     // Absolutely optional, but it will make Zach Leatherman happy :)
     // Also, it makes you eligible to be featured on Speedlify:
@@ -68,10 +68,10 @@ module.exports = {
   author: {
     // Your name. Self-explanatory I guess?
     // And you can use it anywhere on the site as {{ siteConfig.author.name }}
-    name: 'John Doe',
+    name: 'Toni',
     // Your website URL. Used in the footer. Optional.
     // Doesn't have to be the same link as this site
-    url: 'https://eleventy-bliss.vercel.app/',
+    url: 'https://toni-learns-to-love.github.io/',
     // Your fediverse links (e.g. Mastodon). You can provide more than one.
     // For the first account in this array your site will generate
     // .well-known/webfinger file for you so that you'll be searchable
@@ -80,13 +80,13 @@ module.exports = {
     // with a rel='me' attribute and fediverse:creator tag so that you can
     // verify their ownership on Mastodon and other services that use this
     // method of verification.
-    fediverse: [
-      {
-        username: 'JohnMastodon',
-        server: 'mastodon.social',
-        url: 'https://mastodon.social/@JohnMastodon',
-      },
-    ],
+    //fediverse: [
+     // {
+      //  username: 'JohnMastodon',
+       // server: 'mastodon.social',
+       // url: 'https://mastodon.social/@JohnMastodon',
+     // },
+   // ],
   },
   // ---------------------------------------------------------------------------
   // Pages linked in the footer on the right side
