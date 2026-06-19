@@ -46,7 +46,7 @@ I started my summer of figuring out Jesus with no plan. I had a research job at 
 
 I don’t think I could have had a more perfect first pull. Augustine went through the intellectual deduction I knew I had neither the time nor intelligence for. He also struggled with the same persistent longing that I did, and my journal was filled with his quotes:
 
-> “I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” [Confessions, Book 3 chapter 1](https://www.logoslibrary.org/augustine/confessions/0301.html)
+> “I looked for something to love, lover of loving I was, and I hated my safety and path free of mousetraps, since my real hunger was inside me, and was for a more inward food – it was for you, my God.” [(Confessions, Book 3 chapter 1)](https://www.logoslibrary.org/augustine/confessions/0301.html)
 
 Augustine became convinced that Jesus would fill that longing. Interestingly, he assented intellectually before choosing to follow Jesus. He knew that being Christian would cost him a lot. Baptists told me that, but they never seemed real.  My friend Augustine understood something that I didn’t. But I trusted Augustine him and decided to look for Jesus anew in the bible. 
 
@@ -70,7 +70,7 @@ I would not admit it for several more years, but work became central to my life 
 
 Yet, I found plenty of time to attend many Christian lectures and bible studies and learn how to articulate my very just and wise Christian opinions. Thankfully, the great Christians circulating through my reading list began to get to me:
 
-> No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. [Silouan the Athanite](https://saintseraphim.com/pdf/300-Quotes-from-the-Fathers.pdf)
+> No matter how much we may study, it is not possible to come to know God unless we live according to His commandments…If someone has come to know God by the Holy Spirit, his soul will burn with love for God day and night, and his soul cannot be bound to any earthly thing. [(Silouan the Athanite)](https://saintseraphim.com/pdf/300-Quotes-from-the-Fathers.pdf)
 
 That my favorite authors tended to be Catholic, that I went to Catholic sources for advice, that the Catholic and Orthodox saints had the love for God that I wanted, and that I could best perceive God at mass (which I attended from time to time) constantly tempted me to become Catholic. On one day I would vow to become Catholic and the next I convinced myself that pondering conversion avoided my real spiritual problems.
 
@@ -80,7 +80,7 @@ In Tucson, I joined another presbyterian church and made instant friends. I love
 
 But I thought the deserts of Arizona might just do the trick. The especially wet spring watered beautiful wildflowers and created a vibrant ephemeral stream. One day, I hiked up Ventana Canyon to ask God why my life felt so off target. I was not coming down without the answer. And I did get an answer: clear, surprising and simple. God asked who I wanted to become. 
 
-I knew my answer immediately. I always envisioned myself as someone whose mission in life was to create opportunities for those less fortunate. I wanted to build community for young people and use my work to create a more just and beautiful world. I wanted to own little and be generous. I wanted to love much and have a home where all were welcome. And I knew that in my daily life I was not becoming that person. Yet I had the bashful feeling that she was not only real, but realer than who I was.  
+I knew my answer immediately. I always envisioned myself as someone whose mission in life was to create opportunities for those less fortunate. I wanted to build community for young people and use my work to create a more just and beautiful world. I wanted to own little and be generous. I wanted to love much and have a home where all were welcome. And I knew that in my daily life I was not becoming that person. Yet I had the bashful feeling that she was not only real, but realer than who I was. [(C.S. Lewis' Weight of Glory describes this better)](https://www.doxaweb.com/assets/weight_of_glory.pdf) 
 
 [4.	Some people get religion; some people get the truth… I never get the truth](https://www.youtube.com/watch?v=FJIZr6MN1xQ&list=RDFJIZr6MN1xQ&start_radio=1)
 
@@ -143,7 +143,7 @@ I was hired to do policy-relevant research in AI, a topic and interdisciplinary 
 
 It was a gift. God gave me a reset. I had a new chance to live for Him. I wanted to immediately make the most of my second chance.  God’s mercy made me repent. I realized again how much like Augustine’s my wandering had been:
 
-> I myself was exceedingly astonished as I anxiously reflected how long a time had elapsed since the nineteenth year of my life, when I began to burn with a zeal for wisdom, planning that when I had found it I would abandon all the empty hopes and lying follies of hollow ambitions. And here I was already thirty, and still mucking about in the same mire in a state of indecision, avid to enjoy present fugitive delights which were dispersing my concentration, while I was saying: ‘Tomorrow I shall find it…’ [Confessions book 8 chapter 7](https://www.logoslibrary.org/augustine/confessions/0807.html)
+> I myself was exceedingly astonished as I anxiously reflected how long a time had elapsed since the nineteenth year of my life, when I began to burn with a zeal for wisdom, planning that when I had found it I would abandon all the empty hopes and lying follies of hollow ambitions. And here I was already thirty, and still mucking about in the same mire in a state of indecision, avid to enjoy present fugitive delights which were dispersing my concentration, while I was saying: ‘Tomorrow I shall find it…’ [(Confessions book 8 chapter 7)](https://www.logoslibrary.org/augustine/confessions/0807.html)
 
 I decided to confess and start anew. I opened my Catholic prayer book to the prayers of confession and found an examination of conscience next to them. I had never done one, and I remember getting through about five questions:
 
@@ -151,7 +151,7 @@ I decided to confess and start anew. I opened my Catholic prayer book to the pra
 > Did I offer him my work? 
 > Did I make good use of my time?
 > Did I pray slowly and with attention?
-> Did I try to make life pleasant for other people? [source](https://svdprcia.wordpress.com/wp-content/uploads/2009/03/brief-examination-at-night_2.pdf)
+> Did I try to make life pleasant for other people? [(source)](https://svdprcia.wordpress.com/wp-content/uploads/2009/03/brief-examination-at-night_2.pdf)
 
 Five of five no’s to characterize my PhD. I was wrecked – truly contrite for the first time in a very long time. The examination of conscience concluded in hope for a new day: “Make a specific resolution for tomorrow.” I decided I would pray to invite God into my work.
 
@@ -169,7 +169,7 @@ At the time, I concluded three points. First, that the Catholic view of sanctifi
 
 Given that most of us spend more time being Christian than considering Christianity, I thought that the protestant churches I attended focused far too little on our lives after choosing to follow Christ. The explanations of why to become like Christ and how it works were contradictory or unsatisfying. I heard that works flow naturally out of thankfulness, that we should be aiming for rewards in heaven, and that the Holy Spirit prompts all good works. Unfortunately, I was never a very thankful person, I had trouble conceptualizing the wonders of heaven, and I could not discern the difference between the Holy Spirit’s prompting versus ‘temptations to work for my salvation.’ 
 
-The best protestant answer I heard for why we should become like Jesus is that Jesus is our Lord, so we should obey him, and that obeying him results in our supreme happiness, which is glorifying and enjoying the Lord . The formulation satisfied what seemed true about the world. We have to practice being good even if we are Christians, but we like to be good. We feel like we can get closer to God, and that we can love him and enjoy him more. Therefore, the purpose of life is to enjoy the gift we have been given, which includes sharing that gift with others. And as I understand, we are already fully united to Christ because he paid everything and reconciled us to God.
+The best protestant answer I heard for why we should become like Jesus is that Jesus is our Lord, so we should obey him, and that obeying him results in our supreme happiness, which is glorifying and enjoying the Lord . The formulation satisfied what seemed true about the world. We have to practice being good even if we are Christians, but we like to be good. We feel like we can get closer to God, and that we can love him and enjoy him more. Therefore, the purpose of life is to enjoy the gift we have been given, which includes sharing that gift with others. And as I understand, we are already fully united to Christ because he paid everything and reconciled us to God. [(See Westminster Shorter Catechism)](https://thewestminsterstandard.org/westminster-shorter-catechism/)
 
 Protestant theology sounds beautiful but in practice left me aimless. The problem was that as a protestant, my story was complete – the greatest gift was acquired! – and everything else felt like a long divine epilogue. In the post-justification life, enjoying Jesus was good but hard. It felt like I could skip that hard stuff by just enjoying him in heaven. You might say I didn’t have enough faith to believe that enjoying God more on earth was worth the suffering. And I didn’t. God help my lack of faith! Or you might say I just didn’t believe the rewards in heaven would be worth it. And I didn’t! Perhaps God just designed me for a less good heaven than the rest of you all (but would still perfect, right??)
 
@@ -198,7 +198,7 @@ Confession was a good kind of painful. But before becoming Catholic, I also had 
 
 I broke communion somewhat publicly, by crossing my arms over my chest at the distribution in my presbyterian church. It hurt like the moment of a break-up in a relationship.
 
-Some of my protestant friends and teachers were also hurt by my breaking of communion. When I think about it rationally, it does not make sense why it should be so painful. We all remain Christian brothers and sisters. My close friendships with protestants were not broken. The protestants I discussed my conversion with see little danger to my soul. Some seem offended at my joining a body that declares their Eucharist ‘invalid,’ but invalidity does not even deny that God works through the sacraments of all Christian churches . Invalidity is a statement about the differences in our institutions, and as we have picked different institutions we must think that they are different. [see Vatican II, 'The brethren divided from us...'](https://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_unitatis-redintegratio_en.html)
+Some of my protestant friends and teachers were also hurt by my breaking of communion. When I think about it rationally, it does not make sense why it should be so painful. We all remain Christian brothers and sisters. My close friendships with protestants were not broken. The protestants I discussed my conversion with see little danger to my soul. Some seem offended at my joining a body that declares their Eucharist ‘invalid,’ but invalidity does not even deny that God works through the sacraments of all Christian churches . Invalidity is a statement about the differences in our institutions, and as we have picked different institutions we must think that they are different. [(see Vatican II, 'The brethren divided from us...')](https://www.vatican.va/archive/hist_councils/ii_vatican_council/documents/vat-ii_decree_19641121_unitatis-redintegratio_en.html)
 
 But the pain of the loss of communion and the feeling of division transcends the simple rational rebuttals. I think we are feeling the searing pain of division in Christ’s body. We say we are the same, or that we all reflect the full glory of Christ together. But when we must touch the divide, we feel it. I hate it, I hate being apart in any way from my Christian friends who are better and more faithful Christians than I am. 
 
@@ -215,7 +215,7 @@ I was (and am) new to Catholic things and I didn’t know why there are statues 
 
 My catechist had told me that during mass the saints were praising God alongside us. I believed it was true, but not so tangibly real, like in they-are-actually-here-and-our-actual-friends kind of way. The veil between our physical world and the transfigured world suddenly seemed breached. The kingdom of God could easily spill across. It was here. I wondered about Jesus…I believed he was present in mass and elsewhere and I sensed him seeming closer. But I wondered what it meant if He could really be here in this room in the same way my friend was.
 
-> I had heard of thee by the hearing of the ear, but now my eye sees thee; therefore I repent in dust and ashes [Job 42](https://www.biblegateway.com/passage/?search=Job%2042&version=NABRE)
+> I had heard of thee by the hearing of the ear, but now my eye sees thee; therefore I repent in dust and ashes [(Job 42)](https://www.biblegateway.com/passage/?search=Job%2042&version=NABRE)
 
 It meant sheer bliss and terror. The world I hoped for was here. Hallelujah! And I would have to become a woman worthy of it. Painful. Impossible. But with God’s help, nothing is impossible. Not with Jesus taking me by the hand. Did I want it? How could I refuse? I saw the box opened a crack and I could not unopen it if I tried. I had to become Catholic.
 
@@ -229,5 +229,5 @@ I felt hesitant and defeated for a time. But I kept taking small steps and event
 
 Every day, I feel the reality of the words impressed on me as a child. Surrender. Take up your cross. Repent. Trust in God. God is merciful. God is slow to anger. In His presence there is fullness of joy. 
 
-I do not expect this essay to be convincing to anyone, but I hope at the least I convinced you that I should have become Catholic. Maybe because I am crazy. If anyone else is feeling like there is more to life, I encourage you to take the words of my confirmation saint, Augustine, to heart: “Look for what you are looking for…” [Confessions book 4 chapter 12](https://www.logoslibrary.org/augustine/confessions/0412.html)
+I do not expect this essay to be convincing to anyone, but I hope at the least I convinced you that I should have become Catholic. Maybe because I am crazy. If anyone else is feeling like there is more to life, I encourage you to take the words of my confirmation saint, Augustine, to heart: “Look for what you are looking for…” [(Confessions book 4 chapter 12)](https://www.logoslibrary.org/augustine/confessions/0412.html)
 
